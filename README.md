@@ -1,6 +1,2 @@
 # pipiduru
-aiiii bolsonaro 
-
-
-
-lula ladrao roubou meu coraçao
+bolsonaro e lula S2
