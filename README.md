@@ -1,2 +1,2 @@
 # pipiduru
-bolsonaro e lula S2
+AMU MINHA GIOS BR
